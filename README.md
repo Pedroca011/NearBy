@@ -72,7 +72,7 @@ Contribuições são bem-vindas! Para contribuir, siga estes passos:
 
 **Pedro Ramos Paraiso**
 
-[LinkedIn](https://www.linkedin.com/in/pedro-ramos-paraiso) | [GitHub](https://github.com/seu-usuario)
+[LinkedIn](https://www.linkedin.com/in/pedroramosparaiso/) | [GitHub](https://github.com/Pedroca011)
 
 ---
 
